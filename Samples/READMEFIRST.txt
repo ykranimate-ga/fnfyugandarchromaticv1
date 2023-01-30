@@ -1,0 +1,3 @@
+These Are Samples For My Custom FNF Chromatic Version 1!
+
+It Will Be Better Fix But The V1 Vocals Will Be Present on that...
